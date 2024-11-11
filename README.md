@@ -4,7 +4,7 @@
 ![Profile picture ](https://github.com/Diegonzaleznavas/Diegonzaleznavas.github.io/blob/main/headshot2.png?raw=true) 
 
 
-# Diego Nicolas Gonzalez Navas
+
 **Customer Advisor at Ferretería E.P.A. C.A. Venezuela**
 
 📍 Maracaibo, Venezuela  
