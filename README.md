@@ -9,7 +9,7 @@
 
 📍 Maracaibo, Venezuela  
 📧 diegonzaleznavas@gmail.com  
-🔗 [LinkedIn](www.linkedin.com/in/diego-gonzalez-navas-869b02155)
+📱+58 414 648-3515
 
 ---
 
